@@ -50,7 +50,7 @@ Skip Step Right
 
 1. Lower right foot to the ground
 2. Bounce right foot back up slightly, kicking it a few inches back
-3. Right, Left, Right and Right
+3. Right, Left, Right, and Right
 
 
 
